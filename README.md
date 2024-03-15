@@ -1,4 +1,5 @@
-### valeria_fursa
+### - **Discord**: [valeria_fursa](https://discord.com/users/valeria_fursa)
+
 
 <!--
 **fursavaleria841/fursavaleria841** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
